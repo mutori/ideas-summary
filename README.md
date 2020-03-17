@@ -1,2 +1,5 @@
 # ideas-summary
-summary of all ideas to be carried out
+
+Hi there
+
+I will be putting down all the ideas I have here. You will definitely be interested.
